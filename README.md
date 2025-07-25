@@ -1,4 +1,4 @@
-Howdy!! My name's Kris, or you can call me by whatever character I'm playing as. If you want to know more about me, feel free to check out my rentry!
+**Howdy!! My name's Kris, or you can call me by whatever character I'm playing as. If you want to know more about me, feel free to check out my rentry!**
 
 - I'm not usually tabbed in. So unless you see me actively moving or talking to someone, I'm probably afk. Feel free to whisper me to get my attention or leave me a message and I'll reply to you ASAP!!!
 
